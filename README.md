@@ -77,6 +77,6 @@ Created by ❤️ in iran
 
 by =>
 
-[Allwen](http://telegram.me/allwen)
+[MrHalix](http://telegram.me/allwen)
 
 Special Tnx To [AmirSbss](http://telegram.me/Amir_h) For Block List
